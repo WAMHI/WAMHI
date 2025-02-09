@@ -3,3 +3,7 @@
 ![loving kitty.webp](https://raw.githubusercontent.com/WAMHI/WAMHI/refs/heads/main/cats%20loving.webp)
 ![piano kitty.webp](https://raw.githubusercontent.com/WAMHI/WAMHI/refs/heads/main/piano%20cat.webp)
 ![orange kitty.webp](https://raw.githubusercontent.com/WAMHI/WAMHI/refs/heads/main/orange.webp)
+![orange kitty.webp](https://raw.githubusercontent.com/WAMHI/WAMHI/refs/heads/main/kittienss.webp)
+![orange kitty.webp](https://raw.githubusercontent.com/WAMHI/WAMHI/refs/heads/main/lol%20cat.webp)
+![orange kitty.webp](https://raw.githubusercontent.com/WAMHI/WAMHI/refs/heads/main/hachi%20chika.webp)
+
