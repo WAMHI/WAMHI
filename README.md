@@ -11,4 +11,6 @@
 ![orange kitty.webp](https://raw.githubusercontent.com/WAMHI/WAMHI/refs/heads/main/kittienss.webp)
 ![orange kitty.webp](https://raw.githubusercontent.com/WAMHI/WAMHI/refs/heads/main/lol%20cat.webp)
 ![orange kitty.webp](https://raw.githubusercontent.com/WAMHI/WAMHI/refs/heads/main/hachi%20chika.webp)
-
+![orange kitty.webp](https://raw.githubusercontent.com/WAMHI/WAMHI/refs/heads/main/hachi%20chika.webp)
+![orange kitty.webp](https://raw.githubusercontent.com/WAMHI/WAMHI/refs/heads/main/hachi%20chika.webp)
+![orange kitty.webp](https://raw.githubusercontent.com/WAMHI/WAMHI/refs/heads/main/hachi%20chika.webp)
