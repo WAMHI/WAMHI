@@ -14,3 +14,6 @@
 ![orange kitty.webp](https://raw.githubusercontent.com/WAMHI/WAMHI/refs/heads/main/chewwwing.webp)
 ![orange kitty.webp](https://raw.githubusercontent.com/WAMHI/WAMHI/refs/heads/main/cutie%20baby.webp)
 ![orange kitty.webp](https://raw.githubusercontent.com/WAMHI/WAMHI/refs/heads/main/sleeeeeps.webp)
+![orange kitty.webp](https://raw.githubusercontent.com/WAMHI/WAMHI/refs/heads/main/mrrorw.webp)
+![orange kitty.webp](hawaii.png)
+![orange kitty.webp](https://raw.githubusercontent.com/WAMHI/WAMHI/refs/heads/main/smellin.webp)
