@@ -40,3 +40,5 @@
 ![orange kitty.webp](https://64.media.tumblr.com/79623859f976e2f71e3e925e3d667d20/810fe6d2e09bdc93-56/s250x400/022575851dc6190d5985102554718f6b34926509.gifv)
 ![orange kitty.webp](https://64.media.tumblr.com/bfc0e0a882afcd157133d10f94f6ee7d/97d61cd4f9e616f4-ad/s250x400/efebdaeeaae751dc96a65dbb9e98ea12714c3c21.gifv)
 ![orange kitty.webp](https://64.media.tumblr.com/2c5bbaa83da6f498035baa51feba0bbd/ed5fb0e8258904df-56/s250x400/3127e1fcd666e766cd11766e4f57e6fb1d367175.gifv)
+
+<p align="center"> <img src="bambino.gif"><img src="tumblr_443d76bdf1953ba2e74c730cb274138f_9da5312e_250.webp"><img src="outlasttrials.gif"><img 
