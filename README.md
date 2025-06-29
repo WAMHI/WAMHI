@@ -20,4 +20,4 @@
 ![orange kitty.webp](https://raw.githubusercontent.com/WAMHI/WAMHI/refs/heads/main/baby%20kitten.webp)
 ![orange kitty.webp](https://raw.githubusercontent.com/WAMHI/WAMHI/refs/heads/main/puter.webp)
 ![orange kitty.webp](https://64.media.tumblr.com/281a3c25238db8cca17f348992e158e1/577528e6321b868a-d3/s250x400/9dbd391b51529575c2966169da8eadc154809bc6.gifv)
-![orange kitty.webp](file:///C:/Users/Abigail/Downloads/ana%20blinkie.webp)
+![orange kitty.webp](https://64.media.tumblr.com/5681dced8641edb16167f16dd336bb7b/d2631e4dd00e84e4-da/s100x200/ce16d7437d9b195765181a4f84bc825fdfece9e1.gifv)
